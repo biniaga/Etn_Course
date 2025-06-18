@@ -1,1 +1,1 @@
-This is note taken while the GTST courses.
+This is note taken while the ETN courses.
